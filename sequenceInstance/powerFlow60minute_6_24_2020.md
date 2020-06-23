@@ -1,7 +1,6 @@
 # 60 Minute - Power Flow Sequence [6/24 The SIX YTT Finals]
 ### _Theme:_ Discomfort yeilds growth 
-    - Purpose of this flow is to represent the growth you have experienced by showing up
-    - Intentionally channel discomfort to learn some thing new about yourself
+    - Purpose of this flow is to represent the growth I have experienced by showing up. Intentionally channel discomfort to learn some thing new about yourself
 ### _Peakpose(s):_ 
     - Vrikshasana- The first child of shakti (Root to raise)
     - Shoulder Stand
@@ -12,6 +11,7 @@
 - [x] Set the intention of the class; Spacial awareness, Physical awareness,Breath awareness
 
 ```
+Hellow welcome to the my YTT graduation class, I am so happy to have my support system taken the time you have to be here with me. This flow is for all levels of yogies, 
 Setup: laying On the back -- Feet hip width apart -- Bend knees - Place hands on the belly- 
 [3x]In;tiltpelvisOut; arching lowerback--ex;tiltpelvisin; lengtheninglowerback
 [3x]In;Lengthen-ex;wind shield wiper legs left/right  
@@ -33,7 +33,7 @@ In;-Halfwaylift-flatback-Ex;forwardfold-bend knees -- In;root on 4 corner sof th
 1 full breath-In;big streach-Ex;Forward fold--In;Halflift-flatback--ex; press palms on the mat- high plank--heels on toes- thighs and glutes engaed-Navelto spine-shoulder stacked on wrist- one straight line of energy-In;shift weight forward- knees to mat-Ex;push down to themat all the way--In;Upward facingdog-shoulders stacked back & down- chest proud-Ex; DownDog 
 
 [2x]
-Down dog --
+Down dog -- 
   
 ```
 ## Sun B(7m) Pluck 6:35 
