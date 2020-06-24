@@ -132,19 +132,30 @@ DD-- Knee to-nose-- Knee to leftr tricep-- knee to right tricep
 ## BackBends(6m) Davids song 3:34; Vibration- 2:53
 - [x] 
 ```
--- DD, 
+-- DD,-- left leg lifts -- ex; low lunge 
+- Dorp the back knee-- Inhale raise your hands up and high-- anjaneyasana-- exhale hands to heart center
+-- Inhale -- hands raise -- enhale-- baby back bend 
+-- Inhale raise up-- Exhale hips sink low to back of the room --half splits 
+-- Inhale --low lunge -- exhale skandasana to back of the room..
+-- Transition to low lunge -- High lunge - Worrior 2--
+__ inhale starpose-- exhale godess squat-- Inhale star pose -- Exhale hinging on the hip wide angle pose 
+--inhale half way lift  exhale FF
+-- Inhale-- halflisft-- swivil to top of mat 
+-- Left leg lifts -- place it on outside of the left palm.. LIzzard pose.. drop the back knee, bend it for a bind --
+-- release the bind Lift the left leg high DD
+-- Repeat on the other side 
 
 
 ```
 ## Restoration(6m) Song of rivers 6:22
 - [x]  Boat, Breath awareness
 ```
--- Side angled janu 
--- Boat 
+-- Side angled janu 2x
+-- butterfly legs
+-- Boat *2x
 -- Viparita karni -- 
 -- Shoulder stand/plough 
--- Bridge
-
+-- Sit up straight -- breath in /out 
 ```
 ## Shavasana (4m) Naked 4:16 
 - [x] Show stilness, Two minutes of silent practice, Body awareness, Breath awareness, Closure with gratitude 
