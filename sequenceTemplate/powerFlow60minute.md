@@ -8,6 +8,7 @@
 - Wrist warm up 
 - Spine awakening 
 - Breath  
+-Options: Gomukhasana, Garudasana on hands, Hipopener-Rock the baby, Posas and Qudstretch
 ## Sun A(7m)
 - Integrate One breath one movement 
 - Introduce Chaturanga 

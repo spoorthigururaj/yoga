@@ -12,18 +12,16 @@
 
 ```
 Hellow welcome to the my YTT graduation class, I am so happy to have my support system taken the time you have to be here with me. This flow is for all levels of yogies, 
-Setup: laying On the back -- Feet hip width apart -- Bend knees - Place hands on the belly- 
+Setup: 
+Tall Seat-Heros pose/leggs crossed -- Place hands on the belly- 
 [3x]In;tiltpelvisOut; arching lowerback--ex;tiltpelvisin; lengtheninglowerback
-[3x]In;Lengthen-ex;wind shield wiper legs left/right  
-Kneedtochest-hug into a small ball--rock on the spine- Tabletop
-[3x]In;Cow-Ex;Cat
+Place pams on themat with shoulders on top of wrists, Hips on top of knees. Table top
+[5x]In;Cow-Ex;Cat
 [2x]In;lift left hand up--Ex;Press on righthand; Thread the needle to right
 [2x]In;lift right hand up--Ex;Press on righthand; Thread the needle to left 
 TableTop- in;Lengthen the spine from root to crown; Ex; DownDog
 
-Options: Gomukhasana, Garudasana on hands, Hipopener-Rock the baby, Posas and Qudstretch
 ```
-
 ## Sun A(7m)  Keep on Keeping on 2:20 In My room 4:58
 - [x]  Integrate One breath one movement; Introduce Flow 
 ```
@@ -32,62 +30,126 @@ Downdog-Paddleheels-left-right -- In;lift hips high-Ex;Press heels low-Walk your
 In;-Halfwaylift-flatback-Ex;forwardfold-bend knees -- In;root on 4 corner sof the feet--Ex;rise-tadasana-Press shoulders back and down
 1 full breath-In;big streach-Ex;Forward fold--In;Halflift-flatback--ex; press palms on the mat- high plank--heels on toes- thighs and glutes engaed-Navelto spine-shoulder stacked on wrist- one straight line of energy-In;shift weight forward- knees to mat-Ex;push down to themat all the way--In;Upward facingdog-shoulders stacked back & down- chest proud-Ex; DownDog 
 
-[2x]
-Down dog -- 
+[3x]
+Down dog -- Walk your feet to top pf mat -
+-- Tadasana -- 2x baby back bends- Anjali mudra -- engae the central line 
+-- Chaturanga on the knees 
+-- Full chaturanga 
   
 ```
 ## Sun B(7m) Pluck 6:35 
-- [x] Introduce chair, Trunk activation, Warroir I
+- [2x] Introduce chair, Trunk activation, Warroir I
  ```
+DD- TT- Hovering tt- TT 
+-TT- Hovering TT- Tap knees -5,
+-TT- Hovering TT_ Hold 
+-TT-Hovering Swivel knees -left right -5 times 2:30
 
+- Downdog -- Walk to top of mat --chair.. tadasana- baby backbend 2x hand to heart - chair pose 
+-- FF- Flow one time 
+--Left/Right[Leg lifts - knee to nose-- feet bettween parms 
+-- low lunge - engage back leg -- root down on your ront 
+-- In, High lunge -- exhale -- drop back heal --toes point 45degree --hips squared-- warroir 1 
+-- in EXtend, ex, hand to heart -- In extend-- hand to mat --low lunge lefting back heaal high 
+--In leg lifgts -- DD] 
+---Flow the second time 
+-- Travel to top of mat --- heel toe the feet hip width apart -- chair-- tadasana -- backbend 2x-- hand to heart
+-- feet together -- FF
  ```     
 ## Sun C-r1(7m)  Easy 3:30, Smoothie song 3:20  
-- [x] Warrior II, Peak pose Buildup 
+- [x] Warrior II, Peak pose Buildup -- chair to one legged tadasana
 ```
--- Chair
--- One legged tadasana 
--- Airplane 
--- High lunge  
+-- DD-- Knee to-nose-- Knee to leftr tricep-- knee to right tricep 
+-- In left leg high --low lunge-- high lunge -- 
+-- drop the back heel -- open to right side of the mat -- worrior 2 
+-- Reach forward - pull back 2x
+-- Reach forward -- reverse your warrior -- high five back room 
+-- inheale lengthen -- extended side angle -- ex; reverse 
+-- inhale cartweel your hans down.. Step back foot half way,, 
+-- Sweeping your hands up sit down in a chair.. 
+-- root down on the right leg -- one leggedtadasana anjali mudra -- Tadasana 
+-- FF -- Take your flow 
+
+
 ```
-## Sun C-r2(8m) The Calling 7:49 
-- [x] Warrior III, Peak pose build up II
+## Sun C-r2(8m) At the Theaters 5:35
+- [x]  Peak pose build up II
 ```
--- lunge twist 
--- Chair twist 
--- one legged twists 
--- Tree 
---     
+ DD-- Knee to-nose-- Knee to leftr tricep-- knee to right tricep 
+-- In left leg high --low lunge-- high lunge -- 
+-- drop the back heel -- open to right side of the mat -- worrior 2 - Deepen.
+-- Inhale- High lunge,
+-- step the foot half way down in the mat, Pyradid , FF in pyramid
+-- One big motion, Root down on the right foot-- One legged tadasana..
+-- Larally open your knee ,, guild it to meet the inside of left thigh and root down on left foot here. 
+-- Channel balencing through anjali mudra tro the midline 
+-- Chair,--Twisted chair. Tadasana -- cactus arms 
+FF. __ Take your flow
 
 ```
 ## HIIT(5m) Theme Music 1:30 Tamacun 3:25
 - [x] Circuit 
 ```
-
+Fast feet -- filler
+Squats*12                                                                         
+Backlunges- Dips 4 on each side 
+Alternating backlunges Tree pose  [ Theme music ]
+---SEt up in high plank 10 counts 
+-- inch worms setup
+--Inch warms with wide angle squats with hold 4 rounds 
+-- goddess squat with swey.. 4 on each side 
+-- Root on each side of the leg and leg lifts  *12
+--mirange walk 
 
 ```
-## Sun C-r3(8m) At the Theaters 5:35
+## Sun C-r3(8m)  The Calling 7:49 
 - [x] Full expression of peak pose 
 ```
+2:30 minutes stretches 
+Childs pose
+-- Table top-- 
+extend left leg back heel to floor--right leg back heel to floor 
+-- FIRE HIDRENT 
+-- Plank
+-- Downdog
 
-
+DD-- Knee to-nose-- Knee to leftr tricep-- knee to right tricep 
+--Drop the knee kick stand it and supoorted side plank--
+-- In left leg high --low lunge-- high lunge -- 
+-- drop the back heel -- open to right side of the mat -- worrior 2 
+-- Reach forward - pull back 2x
+-- Reach forward -- reverse your warrior -- high five back room 
+-- inheale lengthen -- extended side angle -- ex; Warrior 2 
+-- Inhale- High lunge,
+-- step the foot half way down in the mat, Pyradid , FF in pyramid
+-- One big motion, Root down on the right foot-- One legged tadasana..
+-- Larally open your knee ,, guild it to meet the inside of left thigh and root down on left foot here. 
+-- EXpress your tree
+-- Chair,--Twisted chair. Tadasana -- cactus arms 
+-- FF --Take your flow 
+-- Childs pose -- 
 ```
-## BackBends(6m) Davids song 3:34; Vibration 
-- [x]  Bridge/Wheel 
+## BackBends(6m) Davids song 3:34; Vibration- 2:53
+- [x] 
 ```
+-- DD, 
 
 
 ```
 ## Restoration(6m) Song of rivers 6:22
 - [x]  Boat, Breath awareness
 ```
-
+-- Side angled janu 
+-- Boat 
+-- Viparita karni -- 
+-- Shoulder stand/plough 
+-- Bridge
 
 ```
 ## Shavasana (4m) Naked 4:16 
 - [x] Show stilness, Two minutes of silent practice, Body awareness, Breath awareness, Closure with gratitude 
 ```
-
-
+Showing up is half the battle, you showed up. 
 ```
 
 
