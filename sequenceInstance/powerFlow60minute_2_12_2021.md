@@ -1,46 +1,31 @@
 # 60 Minute - Power Flow Sequence [6/24 The SIX YTT Finals]
 ### _Theme:_ Use the power within to float up and land gracefully 
-    - Purpose of this flow is to experience the flight f an eagle, 
+    - Purpose of this flow is to experience Shoulder openers and Hip openers, 
 ### _Peakpose(s):_ 
     - Eagle and hip opneners
 ### _Playlist:_ [Fly like an Eagle](https://open.spotify.com/playlist/169o7W5yhSLGfXPseIL9SN?si=7c5683321142490e)
-## Integrate 2 Songs Sugarcane (2:24) + Together 3: 25  
+## Integrate(7m)-- Songs Jukai (4:16) + Sugarcane (2:25)  
 - [x] Set the intention of the class; Spacial awareness, Physical awareness,Breath awareness
 
 ```
- 
 Setup: 
-Tall Seat-Heros pose/leggs crossed -- Place hands on the belly- 
-[3x]In;tiltpelvisOut; arching lowerback--ex;tiltpelvisin; lengtheninglowerback
-Place pams on themat with shoulders on top of wrists, Hips on top of knees. Table top
+Start in a Childs pose, toes touch heals wide, Melt on to th emat fingers reaching wide 
+[3x]In;Spill the belly out; arching lowerback--ex;tiltpelvisin; lengtheninglowerback- Uujaii breath
+Draw plams under the shoulder, knees meet, Sit in a tall seat. 
+[1x] Inhale Hands reach high , exhale baby back bend,
+[1x]Inhale Hands reach high , Open reach left Open reach right 
+[2x] Inhale hands reach high, exhale right palm drops to the hip, In extend left palm high, exhale streach to the right ( Repeat other side)
+[2x] Spread your wings out, reach opposite shoulder scaples stacking left on top of right(Repeat otherside)
+ palms meet the mat under your shoulders stacking the arms on the wrists, Hips on top of knees. Table top
 [5x]In;Cow-Ex;Cat
 [2x]In;lift left hand up--Ex;Press on righthand; Thread the needle to right
 [2x]In;lift right hand up--Ex;Press on righthand; Thread the needle to left 
 TableTop- in;Lengthen the spine from root to crown; Ex; DownDog
-
 ```
-## Sun A(7m)  Keep on Keeping on 2:20 In My room 4:58
-- [x]  Integrate One breath one movement; Introduce Flow 
+## Sun A+B (8m) Comfortable (4:15) Wanna know (4:01)
+- [x]  Baby side angle, Ananeyasana, Eagle Arms, Chair pose,  
 ```
- Keep on Keeping on 2:20 - Establish chaturanga
-Downdog-Paddleheels-left-right -- In;lift hips high-Ex;Press heels low-Walk your feet to top of the mat-left-right
-In;-Halfwaylift-flatback-Ex;forwardfold-bend knees -- In;root on 4 corner sof the feet--Ex;rise-tadasana-Press shoulders back and down
-1 full breath-In;big streach-Ex;Forward fold--In;Halflift-flatback--ex; press palms on the mat- high plank--heels on toes- thighs and glutes engaed-Navelto spine-shoulder stacked on wrist- one straight line of energy-In;shift weight forward- knees to mat-Ex;push down to themat all the way--In;Upward facingdog-shoulders stacked back & down- chest proud-Ex; DownDog 
-
-[3x]
-Down dog -- Walk your feet to top pf mat -
--- Tadasana -- 2x baby back bends- Anjali mudra -- engae the central line 
--- Chaturanga on the knees 
--- Full chaturanga 
-  
-```
-## Sun B(7m) Pluck 6:35 
-- [2x] Introduce chair, Trunk activation, Warroir I
- ```
-DD- TT- Hovering tt- TT 
--TT- Hovering TT- Tap knees -5,
--TT- Hovering TT_ Hold 
--TT-Hovering Swivel knees -left right -5 times 2:30
+ DownDog- 
 
 - Downdog -- Walk to top of mat --chair.. tadasana- baby backbend 2x hand to heart - chair pose 
 -- FF- Flow one time 
@@ -52,25 +37,11 @@ DD- TT- Hovering tt- TT
 ---Flow the second time 
 -- Travel to top of mat --- heel toe the feet hip width apart -- chair-- tadasana -- backbend 2x-- hand to heart
 -- feet together -- FF
- ```     
-## Sun C-r1(7m)  Easy 3:30, Smoothie song 3:20  
-- [x] Warrior II, Peak pose Buildup -- chair to one legged tadasana
+  
 ```
--- DD-- Knee to-nose-- Knee to leftr tricep-- knee to right tricep 
--- In left leg high --low lunge-- high lunge -- 
--- drop the back heel -- open to right side of the mat -- worrior 2 
--- Reach forward - pull back 2x
--- Reach forward -- reverse your warrior -- high five back room 
--- inheale lengthen -- extended side angle -- ex; reverse 
--- inhale cartweel your hans down.. Step back foot half way,, 
--- Sweeping your hands up sit down in a chair.. 
--- root down on the right leg -- one leggedtadasana anjali mudra -- Tadasana 
--- FF -- Take your flow 
-
-
-```
-## Sun C-r2(8m) At the Theaters 5:35
-- [x]  Peak pose build up II
+## Sun C- r1(6m) Beautiful People (3:17), Rain on me (3:02) 
+- [2x] Warrior 1 + Standing L+ Shiva Squat, Dancing shiva, Supported eagle Build up 
+ ```
 ```
  DD-- Knee to-nose-- Knee to leftr tricep-- knee to right tricep 
 -- In left leg high --low lunge-- high lunge -- 
@@ -84,8 +55,24 @@ DD- TT- Hovering tt- TT
 FF. __ Take your flow
 
 ```
-## HIIT(5m) Theme Music 1:30 Tamacun 3:25
-- [x] Circuit 
+ ```     
+## Sun C-r2(7m) Love on top (3.44) + On top of world (3.24) 
+- [x] Warrior II, Eagle --- Expressiom
+```
+-- DD-- Knee to-nose-- Knee to leftr tricep-- knee to right tricep 
+-- In left leg high --low lunge-- high lunge -- 
+-- drop the back heel -- open to right side of the mat -- worrior 2 
+-- Reach forward - pull back 2x
+-- Reach forward -- reverse your warrior -- high five back room 
+-- inheale lengthen -- extended side angle -- ex; reverse 
+-- inhale cartweel your hans down.. Step back foot half way,, 
+-- Sweeping your hands up sit down in a chair.. 
+-- root down on the right leg -- one leggedtadasana anjali mudra -- Tadasana 
+-- FF -- Take your flow 
+
+```
+## HIIT Lower body + Core activation + rest (9m)  Just dance(4:0) I wanna dance with somebody (4.0) + Chromatic(1 m)
+- [x] Circuit B, boat- low high , Leg lifts, crunches, Side steps, Bach lunge dips, Squats,  Inch crawls, High plank, Table top-knee taps 
 ```
 Fast feet -- filler
 Squats*12                                                                         
@@ -99,8 +86,8 @@ Alternating backlunges Tree pose  [ Theme music ]
 --mirange walk 
 
 ```
-## Sun C-r3(8m)  The Calling 7:49 
-- [x] Full expression of peak pose 
+## Sun C-r3(8m)  Never really Over (3:43) Together (3.24)
+- [x] Full expression of eagle 
 ```
 2:30 minutes stretches 
 Childs pose
@@ -126,7 +113,7 @@ DD-- Knee to-nose-- Knee to leftr tricep-- knee to right tricep
 -- FF --Take your flow 
 -- Childs pose -- 
 ```
-## BackBends(6m) Davids song 3:34; Vibration- 2:53
+## Backbends and Lizzards (7m) Together 3:25; Be me- 2:34.needy -2:51
 - [x] 
 ```
 -- DD,-- left leg lifts -- ex; low lunge 
@@ -144,12 +131,11 @@ __ inhale starpose-- exhale godess squat-- Inhale star pose -- Exhale hinging on
 
 
 ```
-## Restoration(6m) Song of rivers 6:22
-- [x]  Boat, Breath awareness
+## Restoration (4m) -- Confidently Lost 
+- [x] Janu, Side janu, Butter fly legs 
 ```
 -- Side angled janu 2x
 -- butterfly legs
--- Boat *2x
 
 ```
 ## Shavasana (4m + 3m extra) Crystal Sclience  6:55
